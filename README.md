@@ -5,6 +5,6 @@ ok, 20 Janaury 2022
 I's my start
 I want know more.
 I try...
-But i thing perhaps... It give me anything
+But i thing perhaps... It'll give me anything
 
 
